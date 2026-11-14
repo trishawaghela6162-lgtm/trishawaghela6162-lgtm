@@ -1,6 +1,7 @@
 # Hi, I'm Trisha Waghela! 🌊
 
-### Marine Biology Postgraduate | Coral Ecology | Marine Science Research
+### Pursuing Masters in Marine Biology from JCU, townsville
+| Coral Ecology | Marine Science Research
 
 I'm pursuing a Master of Marine Biology at James Cook University, Australia, with a strong interest in coral ecology, reef ecosystems, and marine conservation.
 
